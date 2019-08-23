@@ -1,3 +1,3 @@
 # timeline
 I'm Arianna
-I like the band Why Don't We
+i have a friend that said "Twisted roll bread garlic"
